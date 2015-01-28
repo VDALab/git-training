@@ -7,3 +7,5 @@ Hi~ This is Emplus
 hahah it's benbean
 hihi i'm jimbo
 hihi i'm Hsiang
+Nice to meet you, my name is little BO.
+
